@@ -1,1 +1,0 @@
-# RAMESSESII2# Degrees
